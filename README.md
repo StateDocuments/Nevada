@@ -1,6 +1,7 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/dave.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/feratel.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/fileslist.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/screenshot-02de0582-39f6-48a5-9c7c-1468bdff5f0b.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/screenshot-2701ae2b-a310-4488-8464-7dac86a90a57.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/screenshot-8f53b4da-c329-44ed-9b4f-0165bcd9ffb9.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/screenshot-c2b0eb15-f7be-40d1-9bab-2d8a68f3b5d1.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/TL-100207.jpg)
