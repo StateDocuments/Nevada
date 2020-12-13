@@ -3,6 +3,8 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/fd46d6dd-726d-4c4f-9995-bf42367d73b7.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/feratel.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/fileslist.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/screenshot-5e11eaea-166b-4924-815f-0e0f0a98df98.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/screenshot-bab4cbf6-3129-4b4c-b1ba-26b3afc57958.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/TL-100207.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/TL-100208.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/master/TL-100209.jpg)
