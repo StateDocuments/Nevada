@@ -1,3 +1,5 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/main/Ami39918263-5540-45a3-a713-0fa0fcf3c066.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/main/Amic3452ffe-4642-4829-80ab-ede86bfe2d4d.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/main/TL-100207.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/main/TL-100208.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Nevada/blob/main/TL-100209.jpg)
